@@ -1,0 +1,1 @@
+# majorbnuy.github.io
